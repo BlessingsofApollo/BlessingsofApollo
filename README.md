@@ -1,16 +1,59 @@
-## Hi there 👋
 
-<!--
-**BlessingsofApollo/BlessingsofApollo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Names are Neptune or Sunny
 
-Here are some ideas to get you started:
+## Info 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 17 y.o
+
+ Big Astronomy lover
+
+ Multishipper and Multifandom
+
+ Transmasc / AFAB
+
+ Will Solace kinnie  (dbls int freely)
+
+ Demisexual and bisexual
+
+ Diagnosed Anxiety and ADD
+
+ ## DNI
+
+ MAP
+
+ RP
+
+ Trump supporters
+
+ Proshipper
+
+ Racist,etc
+
+ Forsaken fandom (unless I do or party)
+
+ Overly sensitive people (A little is ok but only to a extent)
+
+ Below 14 or over 25 years old (unless known before)
+
+ Just the basic dni
+
+
+ ## Fandoms
+
+  Solarballs , Die of Death  
+
+  Wings of Fire , Bad Things
+
+  Evade , House of Puso
+
+  Dandy's World , SpongeBob SquarePants 
+
+  ^_^ , DeivyDoesTurtorials33 
+
+  Percy Jackson & the Olympians , Let Him Go
+
+  Warrior Cats 
+  
+
+  ## WIP
+
