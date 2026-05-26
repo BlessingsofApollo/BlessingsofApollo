@@ -5,7 +5,7 @@
 
  17 y.o
 
- Big Astronomy lover
+ Astronomy enthusiast 
 
  Multishipper and Multifandom
 
