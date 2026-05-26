@@ -19,22 +19,6 @@
 
  ## DNI
 
- MAP
-
- RP
-
- Trump supporters
-
- Proshipper
-
- Racist,etc
-
- Forsaken fandom (unless I do or party)
-
- Overly sensitive people (A little is ok but only to a extent)
-
- Below 14 or over 25 years old (unless known before)
-
  Just the basic dni
 
 
@@ -55,5 +39,5 @@
   Warrior Cats 
   
 
-  ## WIP
+  ## Probably WIP
 
