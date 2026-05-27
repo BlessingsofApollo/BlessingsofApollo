@@ -1,5 +1,4 @@
 
-## Names are Neptune or Sunny
 
 ## Info 
 
